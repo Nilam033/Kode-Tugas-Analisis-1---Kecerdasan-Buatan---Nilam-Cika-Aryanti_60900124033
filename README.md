@@ -1,0 +1,1 @@
+# Kode-Tugas-Analisis-1---Kecerdasan-Buatan---Nilam-Cika-Aryanti_60900124033
